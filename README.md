@@ -8,3 +8,5 @@ YOU NEED EX-eCUTOR FOR SCRPT (KEYLESS)
 
 >Esp
 -esp
+
+(MOBİLE)-(PC)
